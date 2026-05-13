@@ -1,4 +1,4 @@
-
+Download king legacy smart Scripts for king legacy, the best script available, featuring instant win and auto-upgrade. This powerful tool ensures you have the upper hand in every
 
 
 
